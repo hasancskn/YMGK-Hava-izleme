@@ -1,1 +1,1 @@
-# YMGK-Hava-zleme
+# YMGK-Hava-ızleme
